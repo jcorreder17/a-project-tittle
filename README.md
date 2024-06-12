@@ -1,2 +1,3 @@
 # a-project-tittle
 Analista de Seguridad
+Soy un profesional con sólida experiencia en seguridad, emergencias y gestión de equipos, con una destacada trayectoria en la Legión Española y en el sector privado. Mi compromiso con la formación continua y el voluntariado refleja mis valores de disciplina, responsabilidad y altruismo. Mi capacidad para gestionar situaciones críticas, combinada con una fuerte ética de trabajo y un enfoque continuo en el aprendizaje y la innovación tecnológica, me permite ofrecer soluciones efectivas y proactivas en el ámbito de la seguridad. Estoy dedicado a aplicar mis habilidades y valores para fortalecer las estrategias de ciberseguridad y proteger los activos de las organizaciones, garantizando un entorno seguro y resiliente.
